@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Chandru Prakash
+# 👋 Hi, I'm Chandira Prakash M
 
 🎓 **B.Tech in Artificial Intelligence and Machine Learning**  
 🏫 **Dr. Mahalingam College of Engineering and Technology**  
